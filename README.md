@@ -19,5 +19,5 @@ My name is Cameron Dolly and I'm a student-athlete graduating from Rollins Colle
 Feel free to reach out to me if you have any questions!
 
 🔭 I’m currently working on foxday.io, feel free to check it out!            
-⚡ Fun fact: I'm an NCAA Division 2 All-American Athlete for Swimming!
+⚡ Fun fact: I'm an NCAA Division 2 All-American Athlete for Swimming!                      
 📫 How to reach me: camerondolly2001@gmail.com
