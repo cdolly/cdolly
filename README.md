@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-My name is Cameron Dolly and I'm a student-athlete graduating from Rollins College in May of 2023. I have a BA in Computer Science with a Minor in Data Analytics. Please check out some of my work and projects I've completed!
+My name is Cameron Dolly and I'm an ex-student-athlete who graduated from Rollins College in May of 2023. I have a BA in Computer Science with a Minor in Data Analytics and currently find myself in a paid media management/analytics role. Please check out some of my work and projects I've completed!
 
 Feel free to reach out to me if you have any questions!
 
